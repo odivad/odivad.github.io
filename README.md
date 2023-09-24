@@ -1,1 +1,0 @@
-# odivad.github.io
